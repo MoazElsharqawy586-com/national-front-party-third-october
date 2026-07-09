@@ -1,1 +1,0 @@
-# sharqawy-group
